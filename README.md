@@ -1,1 +1,1 @@
-# Neha_Exercise-Suggestions-
+# Neha_Yoga-Suggestions-
